@@ -1,1 +1,1 @@
-Project description new update 23.03.2017 (upd)
+Project description new update 23.03.2017 (update)
